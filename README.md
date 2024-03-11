@@ -1,0 +1,1 @@
+# for_normal_pyramid
